@@ -1,5 +1,9 @@
 ### Hi there 👋
-
+I am Kamestart,
+I like to code and don't have a fixed goal!
+Coding is one of the best things on Earth!
+I enjoy it a lot, we collaborate together!
+📫 How to reach me: contact me on discord @guy guy#5909 or email me @discodiscostuck@gmail.com
 <!--
 **kamestart/kamestart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
